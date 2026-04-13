@@ -35,7 +35,7 @@ Currently, I am pursuing a course in:
 
 ## 📫 Connect With Me
 
-* 📧 Email: singhscorpio2@gmail.com(singhscorpio2@gmail.com)
+* 📧 Email: singhscorpio2@gmail.com
 * 👤 Name: Nityanand Solanki
 
 
